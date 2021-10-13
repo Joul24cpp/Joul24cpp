@@ -23,7 +23,7 @@ I'm Joul. I'm from Mexico and I'm studying Intelligent Computing Engineering. I 
 - 💬 Ask me about:
   - Anything 😄 I'll do my best to be helpful
 - 📲 How to reach me:
-  - Working on it ;)
+  - Working on it 😉
 - 😄 Pronouns:
   - He/him
 
